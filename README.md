@@ -74,4 +74,4 @@ Rojuascent needed to sell fashion online without diluting the brand. Luxury e-co
 
 ---
 
-*Case study by David Aloba. [code.davidaloba.com](https://code.davidaloba.com) · [LinkedIn](https://linkedin.com/in/mistertaavetti)*
+*Case study by David Aloba. [mistertaavetti.davidaloba.com](https://mistertaavetti.davidaloba.com) · [LinkedIn](https://linkedin.com/in/mistertaavetti)*
